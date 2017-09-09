@@ -22,7 +22,7 @@ Questions, suggestions, help needed?
 Contact me at:  
 Email: jgarza9788@gmail.com  
 Cell: 1-818-251-0647  
-Contact Info: [justingarza.net/contact](http://justingarza.net/contact/)
+Contact Info: [justingarza.info/contact](http://justingarza.info/contact/)
 
 ## Description Features
 
